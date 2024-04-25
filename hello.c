@@ -1,1 +1,1 @@
-I`m Haruka Koshiro.
+I`m Koshiro.
